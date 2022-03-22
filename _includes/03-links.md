@@ -1,1 +1,1 @@
-MY NAME IS [TAMIL].(https://octodex.github.com/images/yaktocat.png)
+MY NAME IS [TAMIL](https://www.pinterest.com/shanmugasmaiall/tamil-images/)
